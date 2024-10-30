@@ -33,6 +33,6 @@ We may update our Privacy Policy from time to time. All changes will be posted i
 
 ## 6. Contact Us
 
-If you have any questions or concerns about this Privacy Policy, please contact us at [dmitrydlj@gmail.com](mailto:dmitrydlj@gmail.com).
+If you have any questions or concerns about this Privacy Policy, please contact us at [dmitrydlj@gmail.com](mailto:dmitrydlj@gmail.com) ,  [angelinaDenezhko@gmail.com](mailto:dmitrydlj@gmail.com)..
 
 Thank you for using ArtCanvas!
