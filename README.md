@@ -1,7 +1,5 @@
 # Privacy Policy for ArtCanvas
 
-**Effective Date: [Insert Date]**
-
 Welcome to ArtCanvas! We value your privacy and are committed to protecting your personal data. This Privacy Policy explains how we collect, use, and safeguard information when you use our app.
 
 ## 1. Information We Collect
