@@ -47,4 +47,4 @@ If you have any questions or concerns about this Privacy Policy, please contact 
 - **Email**: dmitrydlj@gmail.com  
 - **Email**: angelinaDenezhko@gmail.com  
 
-Thank you for using **Art AR: How To Draw Lessons**!
+Thank you for using **AR Drawing Lessons**!
