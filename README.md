@@ -1,6 +1,6 @@
-# Privacy Policy for Art AR: How To Draw Lessons
+# Privacy Policy for AR Drawing Lessons
 
-Welcome to **Art AR: How To Draw Lessons**! We value your privacy and are committed to protecting your personal data. This Privacy Policy explains how we collect, use, and safeguard information when you use our app.
+Welcome to **AR Drawing Lessons**! We value your privacy and are committed to protecting your personal data. This Privacy Policy explains how we collect, use, and safeguard information when you use our app.
 
 ## 1. Information We Collect
 
